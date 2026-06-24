@@ -2,6 +2,7 @@ https://docs.google.com/presentation/d/1tnc96hYB5hmMn6BwV0N4DScLcDATaNrV6C9leJZf
 
 https://meet.jit.si/RedBacteriasFollowTemporarily
 https://telemost.yandex.ru/j/40396362990410
+https://ogrik123.github.io/site1/
 
 https://docs.google.com/presentation/d/1BkK6Mj9QOZ3G02nAG44a6y3pim-AIpsnmThQXkqHdZk/edit?slide=id.g296393894fb_0_974#slide=id.g296393894fb_0_974
 
